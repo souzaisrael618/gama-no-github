@@ -1,0 +1,1 @@
+Estou achando esse curso muito bom, muuuito focado na prática dos conceitos, e excelente para quem tem a intenção de entrar (ou retornar) para a área da programação
